@@ -1,16 +1,23 @@
-## Hi there 👋
+✨🪞🎀💗
 
-<!--
-**Linasilvw/Linasilvw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*Ana Carolina Da Silva Gonçalves*
 
-Here are some ideas to get you started:
+“A verdadeira beleza está presente nas atitudes feitas de coração”
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• estou estudando pelo [Alura] (https://cursos.alura.com.br/dashboard)
+
+• **entre em contato comigo em** ana.silva.goncalves12@escola.pr.gov.br 
+
+• 2009
+
+• mãe de 4 gatinhos
+
+• 1/3 Ens. Médio
+
+• violinista
+
+• aspirante a maquiadora e futura biomédica 
+
+![](https://media.tenor.com/-Z8SXmChUiwAAAAM/ariana-grande-ariana-grande-kiss.gif)
+
+![](https://media.tenor.com/GIhtOUDDmjgAAAAM/ariana-grande.gif)
