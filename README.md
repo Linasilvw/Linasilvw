@@ -12,7 +12,7 @@
 
 • mãe de 4 gatinhos
 
-• 1/3 Ens. Médio
+• 2/3 Ens. Médio
 
 • violinista
 
