@@ -22,4 +22,4 @@
 
 ![](https://media.tenor.com/GIhtOUDDmjgAAAAM/ariana-grande.gif)
 
-![image](https://github.com/user-attachments/assets/00850ec2-995f-4f0d-95b9-ea4b2ba97ee7)
+![](https://github.com/user-attachments/assets/00850ec2-995f-4f0d-95b9-ea4b2ba97ee7)
