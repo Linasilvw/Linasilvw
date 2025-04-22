@@ -22,5 +22,5 @@
 
 ![](https://media.tenor.com/GIhtOUDDmjgAAAAM/ariana-grande.gif)
 
-![](https://media1.tenor.com/m/VbhWI6K42-cAAAAC/ariana-ariana-grande.gif) 
+
 
