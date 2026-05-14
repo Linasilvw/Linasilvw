@@ -12,11 +12,11 @@
 
 • mãe de 4 gatinhos
 
-• 2/3 Ens. Médio
+• 3/3 Ens. Médio
 
 • violinista
 
-• aspirante a maquiadora e futura biomédica 
+• aspirante a maquiadora e futura médica 
 
 ![](https://media.tenor.com/-Z8SXmChUiwAAAAM/ariana-grande-ariana-grande-kiss.gif)
 
